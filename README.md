@@ -1,5 +1,4 @@
 # hello-world
-My first repository
 
 Hello! I am completelt new to this. But I am pushing myself to learn as much as I can.
 
