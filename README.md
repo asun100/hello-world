@@ -3,7 +3,7 @@ My first repository
 
 Hello! I am completelt new to this. But I am pushing myself to learn as much as I can.
 
-The thing that many do not know, is that I not only have to deal with work while studying, but I also have depression, anxiety and eating problems... So yeah, I deal with what I can deal with.
+The thing that many do not know, is that I not only have to deal with work while studying, but I also have anxiety and eating problems... So yeah, I deal with what I can deal with.
 
 Life is life. Relationship is life. The only thing I can do is to hold on and deal with whatever however I can.
 
